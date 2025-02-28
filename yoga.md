@@ -12,3 +12,7 @@ Fortalece los músculos y mejora la postura.
 1. Realiza una respiración profunda antes de comenzar.
 2. Practica posturas básicas manteniendo la alineación corporal.
 3. Finaliza con ejercicios de relajación y meditación.
+
+## Consejos
+Usa una esterilla cómoda para mayor estabilidad.
+Escucha a tu cuerpo y avanza progresivamente.
