@@ -12,3 +12,7 @@ Reduce el estrés y mejora la coordinación.
 1. Realiza un calentamiento en seco y dentro del agua.
 2. Nada variando los estilos para trabajar diferentes músculos.
 3. Finaliza con estiramientos en el agua.
+
+## Consejos
+Mantén una respiración controlada.
+Usa equipo adecuado como gafas y gorro.
