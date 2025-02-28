@@ -12,3 +12,7 @@ Reduce el riesgo de lesiones.
 1. Calienta con movilidad articular y estiramientos dinámicos.
 2. Realiza ejercicios como sentadillas, planchas y levantamientos.
 3. Trabaja con peso corporal o resistencia moderada.
+
+## Consejos
+Controla la postura y ejecución de cada ejercicio.
+Mantén una respiración adecuada.
