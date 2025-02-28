@@ -12,3 +12,7 @@ Aumenta la flexibilidad y el equilibrio.
 1. Realiza ejercicios de respiración y activación del core.
 2. Practica movimientos controlados con el peso del cuerpo o accesorios.
 3. Mantén una postura correcta y concentración en cada ejercicio.
+
+## Consejos
+Controla la respiración en cada movimiento.
+No fuerces la flexibilidad más allá de tu capacidad.
