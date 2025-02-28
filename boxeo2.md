@@ -13,3 +13,7 @@ Fortalece la musculatura.
 2. Practica combinaciones de golpes en el saco o con un compañero.
 3. Alterna con ejercicios de sombra y defensa.
 4. Finaliza con estiramientos y relajación.
+
+## Consejos
+Usa vendas y guantes adecuados para proteger tus manos.
+Mantén una postura equilibrada y los puños en guardia.
